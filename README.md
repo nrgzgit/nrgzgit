@@ -17,3 +17,6 @@ This cave is Grug's humble abode of coding adventures. Here, Grug stores little 
 ## Grug Go 🚀
 
 Grug want to make this cave a bustling hub of knowledge and creativity! 🏞️🔥 #GrugCodeBeginner #LearningCavemanCoder
+
+## More Grug Facts 📜
+Outside code cave, Grug love cat friend, cat make Grug smile and happy. Grug also love cook, mix tasty things in pot, make tribe happy with yummy food. Nature is Grug's friend too, trees and sky make Grug calm and peaceful.
